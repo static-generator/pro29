@@ -8,9 +8,9 @@ ___
 ![alt text](image.jpg)
 ___
 
-My Hobbies 
-sleep
-eat
+*My Hobbies* 
+sleep!
+eat!
 
 | MY | FAV PPOP/KPOP GROUP |
 | ----------- | ----------- |
