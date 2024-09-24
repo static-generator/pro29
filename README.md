@@ -8,10 +8,6 @@ ___
 ![alt text](image.jpg)
 ___
 
-*My Hobbies* 
-sleep!
-eat!
-
 | MY | FAV PPOP/KPOP GROUP |
 | ----------- | ----------- |
 | BINI | TWICE |
