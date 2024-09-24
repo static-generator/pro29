@@ -3,10 +3,14 @@ Pro 29
 ___
 
 [instagram](https://www.instagram.com)
-[tiktok](https://www.tiktok.com)
 ___
 
 ![alt text](image.jpg)
+___
+
+My Hobbies 
+sleep
+eat
 
 | MY | FAV PPOP/KPOP GROUP |
 | ----------- | ----------- |
